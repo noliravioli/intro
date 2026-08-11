@@ -1,1 +1,0 @@
- ![](https://media.discordapp.net/attachments/1336906483136331892/1533654949840289792/Untitled642_20260802205243.png?ex=6a7146f9&is=6a6ff579&hm=376c055068b0fddb41e89547a66ac356767f459d42b91bfc254a6b80aa93cc0d&=&format=webp&quality=lossless)
